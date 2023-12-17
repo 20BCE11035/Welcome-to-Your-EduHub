@@ -109,6 +109,9 @@ file:///D:/PDF%20FILES/Module-3-Edge%20detection-part1.pdf
 This is all pdf placement or exam also helpfull student so pdf link copy and paste your google crome
 
 
+some bad feel lang hour study to listen some song link
+file:///D:/SONGS/
+
 Index of D:\SONGS\
 [parent directory]
 Name	Size	Date Modified
