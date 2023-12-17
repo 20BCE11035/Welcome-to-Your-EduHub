@@ -108,6 +108,26 @@ file:///D:/PDF%20FILES/Module-3-Edge%20detection-part1.pdf
 
 This is all pdf placement or exam also helpfull student so pdf link copy and paste your google crome
 
+
+Index of D:\SONGS\
+[parent directory]
+Name	Size	Date Modified
+Bhula Dena.mp3	3.8 MB	8/21/23, 1:17:44 AM
+Bilionera_320(PagalWorld.com.pe).mp3	7.1 MB	8/26/23, 5:45:21 AM
+Calm-Down-Calm-Down_320(PaglaSongs).mp3	9.5 MB	8/26/23, 5:52:00 AM
+Despacito_320(PaglaSongs).mp3	10.8 MB	8/26/23, 5:50:38 AM
+Faded - Alan Walker-(DJMaza).mp3	8.2 MB	8/26/23, 5:43:28 AM
+Hislerim_320(PaglaSongs).mp3	8.3 MB	8/26/23, 5:54:19 AM
+Kanha-Kanha-Kab-Se-Pukaru_320(PaglaSongs).mp3	12.5 MB	8/20/23, 11:29:53 PM
+Let-Me-Love-You_320(PaglaSongs).mp3	7.9 MB	8/26/23, 5:53:19 AM
+On My Way - Sabrina Carpenter-(DJMaza).mp3	7.6 MB	8/26/23, 5:42:27 AM
+Taki-Taki_320(PaglaSongs).mp3	8.6 MB	8/26/23, 5:48:38 AM
+Tokyo-Drift_320(PagalWorld).mp3	9.4 MB	8/26/23, 5:55:31 AM
+Tujhe Dhoondti Hai Yee Pagal Nigahen Lofi-(Banglagan.in).mp3	8.9 MB	8/31/23, 2:37:33 AM
+Whoopty_320(PagalWorld).mp3	7.9 MB	8/26/23, 6:01:31 AM
+Ya-Lili_320(PagalWorld).mp3	7.7 MB	8/26/23, 5:59:04 AM
+zamona-net-ilkay-sencan-dynoro-rockstar.mp3	8.3 MB	8/26/23, 5:57:17 AM
+
 About Us
 Your EduHub is dedicated to providing quality education to learners of all ages.
 
